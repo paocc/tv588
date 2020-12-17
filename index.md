@@ -5,7 +5,7 @@
 <a href="http://hrk.guitarhaven.com/" target="_blank">网址二</a> 　 
 <a href="http://hrk.guitarhaven.com/b.html" target="_blank">网址三</a>
 <a href="https://yadi.sk/d/d0sUeAOpal3njw" target="_blank">　• 云下载 </a></p>
-<p>◆ new! <a href="http://hut.guitarhaven.com/a.html">•分 享 网 址</a> ;（http://t.wss.cam 请 收 藏） </p>
+<p>◆ new! <a href="http://huu.guitarhaven.com/a.html">•分 享 网 址</a> ;（http://t.wss.cam 请 收 藏） </p>
 
 <p>◎•  小 站：  
 <a href="http://hev.guitarhaven.com/f.html" target="_blank">网址一</a> 　 
