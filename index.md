@@ -1,51 +1,51 @@
-<p>2021/5/24
+<p>2021/5/24a
 <p>• 网址不定期更新，连不上时，请不同时间再试试。
 <p>• 建议用谷歌或火狐官方浏览器访问。
 <p>◎  • 视 频： 
-<a href="http://hhx.aud.bar/" target="_blank">网址一</a> 　 
-<a href="http://htg.aud.bar/" target="_blank">网址二</a> 　 
-<a href="http://hpr.aud.bar/b.html" target="_blank">网址三</a>
+<a href="http://hhy.aud.bar/" target="_blank">网址一</a> 　 
+<a href="http://hth.aud.bar/" target="_blank">网址二</a> 　 
+<a href="http://hps.aud.bar/b.html" target="_blank">网址三</a>
 <a href="https://yadi.sk/d/d0sUeAOpal3njw" target="_blank">　• 云下载 </a></p>
-<p>◆ 分 享 网 址 <a href="http://hpr.aud.bar/a.html"></a>（https://i.zhih.ml/ 请 收 藏） </p>
+<p>◆ 分 享 网 址 <a href="http://hps.aud.bar/a.html"></a>（https://i.zhih.ml/ 请 收 藏） </p>
 
 <p>◎•  小 站：  
-<a href="http://hhx.aud.bar/f.html" target="_blank">网址一</a> 　 
-<a href="http://htg.aud.bar/h.html" target="_blank">网址二</a> 　 
-<a href="http://hpr.aud.bar/k/" target="_blank">网址三</a></p><p>
+<a href="http://hhy.aud.bar/f.html" target="_blank">网址一</a> 　 
+<a href="http://hth.aud.bar/h.html" target="_blank">网址二</a> 　 
+<a href="http://hps.aud.bar/k/" target="_blank">网址三</a></p><p>
 
 <p>◎  • 翻 墙 软 件 ：  
-<a href="http://hhx.aud.bar/ff/" target="_blank">网址一</a> 　 
-<a href="http://htg.aud.bar/s/read/a1_nd.html" target="_blank">网址二</a> 　 
-<a href="http://hpr.aud.bar/ff/index.html" target="_blank">网址三</a></p>
+<a href="http://hhy.aud.bar/ff/" target="_blank">网址一</a> 　 
+<a href="http://hth.aud.bar/s/read/a1_nd.html" target="_blank">网址二</a> 　 
+<a href="http://hps.aud.bar/ff/index.html" target="_blank">网址三</a></p>
 <p>◎  • 每 日 新 闻：  
-<a href="http://hhx.aud.bar/day/" target="_blank">网址一</a> 　 
-<a href="http://htg.aud.bar/day/" target="_blank">网址二</a> 　 
-<a href="http://htg.aud.bar/day/index.html" target="_blank">网址三</a></p>
+<a href="http://hhy.aud.bar/day/" target="_blank">网址一</a> 　 
+<a href="http://hth.aud.bar/day/" target="_blank">网址二</a> 　 
+<a href="http://hth.aud.bar/day/index.html" target="_blank">网址三</a></p>
 <p>◎   • 短 波 分 享：  
-<a href="http://hhx.aud.bar/h/" target="_blank">网址一</a> 　 
-<a href="http://hpr.aud.bar/h/" target="_blank">网址二</a> 　 
-<a href="http://htg.aud.bar/h/index.html" target="_blank">网址三</a></p>
+<a href="http://hhy.aud.bar/h/" target="_blank">网址一</a> 　 
+<a href="http://hps.aud.bar/h/" target="_blank">网址二</a> 　 
+<a href="http://hth.aud.bar/h/index.html" target="_blank">网址三</a></p>
 <p>◎   • 九 评.三 退：  
-<a href="http://hhx.aud.bar/t/" target="_blank">网址一</a> 　 
-<a href="http://hpr.aud.bar/v2/index.html" target="_blank">网址二</a> 　 
-<a href="http://htg.aud.bar/tt/index.html" target="_blank">网址三</a> 　</p>
+<a href="http://hhy.aud.bar/t/" target="_blank">网址一</a> 　 
+<a href="http://hps.aud.bar/v2/index.html" target="_blank">网址二</a> 　 
+<a href="http://hth.aud.bar/tt/index.html" target="_blank">网址三</a> 　</p>
 <p>  • （E2_视频/语音）《九 评》视频/语音: 
-<a href="http://hhx.aud.bar/7738.html" target="_blank">网址一</a> 　 
-<a href="http://hpr.aud.bar/7614.html" target="_blank">网址二</a> 　 
-<a href="http://htg.aud.bar/7633.html" target="_blank">网址三</a></p>
+<a href="http://hhy.aud.bar/7738.html" target="_blank">网址一</a> 　 
+<a href="http://hps.aud.bar/7614.html" target="_blank">网址二</a> 　 
+<a href="http://hth.aud.bar/7633.html" target="_blank">网址三</a></p>
 <p>◎   • 三 退 管 道...退 党 网：  
-<a href="http://hhx.aud.bar/go/td1.html" target="_blank">网址一</a> 　 
-<a href="http://hpr.aud.bar/go/td2.html" target="_blank">网址二</a> 　 
-<a href="http://htg.aud.bar/go/td3.html" target="_blank">网址三</a></p>
+<a href="http://hhy.aud.bar/go/td1.html" target="_blank">网址一</a> 　 
+<a href="http://hps.aud.bar/go/td2.html" target="_blank">网址二</a> 　 
+<a href="http://hth.aud.bar/go/td3.html" target="_blank">网址三</a></p>
 <p>  • （F1） 三 退 管 道（一）： 
-<a href="http://hhx.aud.bar/dd/" target="_blank">网址一</a> 　 
-<a href="http://hpr.aud.bar/s/read/a1_tdx.html" target="_blank">网址二</a> 　 
-<a href="http://htg.aud.bar/dd/" target="_blank">网址三</a></p>
+<a href="http://hhy.aud.bar/dd/" target="_blank">网址一</a> 　 
+<a href="http://hps.aud.bar/s/read/a1_tdx.html" target="_blank">网址二</a> 　 
+<a href="http://hth.aud.bar/dd/" target="_blank">网址三</a></p>
 <p>  • （F2）三 退 管 道（二）： 
-<a href="http://hpr.aud.bar/d/" target="_blank">网址一</a> 　 
-<a href="http://hhx.aud.bar/d/index.html" target="_blank">网址二</a> 　 
-<a href="http://htg.aud.bar/d/" target="_blank">网址三</a></p>
+<a href="http://hps.aud.bar/d/" target="_blank">网址一</a> 　 
+<a href="http://hhy.aud.bar/d/index.html" target="_blank">网址二</a> 　 
+<a href="http://hth.aud.bar/d/" target="_blank">网址三</a></p>
 <p>◎   • PDF电子书：  
-<a href="http://hhx.aud.bar/p/" target="_blank">网址一</a> 　 
-<a href="http://htg.aud.bar/p/index.html" target="_blank">网址二</a> 　 
-<a href="http://hpr.aud.bar/p/" target="_blank">网址三</a></p>
+<a href="http://hhy.aud.bar/p/" target="_blank">网址一</a> 　 
+<a href="http://hth.aud.bar/p/index.html" target="_blank">网址二</a> 　 
+<a href="http://hps.aud.bar/p/" target="_blank">网址三</a></p>
