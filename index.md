@@ -6,7 +6,7 @@
 <a href="http://hts.aud.bar/" target="_blank">网址二</a> 　 
 <a href="http://hqd.aud.bar/b.html" target="_blank">网址三</a>
 <a href="https://yadi.sk/d/d0sUeAOpal3njw" target="_blank">　• 云下载 </a></p>
-<p>◆ 分 享 网 址 （https://g.zhih.ml/ 请 收 藏） </p>
+<p>◆ 分 享 网 址 （https://b.zhih.ml/ 请 收 藏） </p>
 
 <p>◎•  小 站：  
 <a href="http://hik.aud.bar/f.html" target="_blank">网址一</a> 　 
