@@ -1,51 +1,51 @@
-<p>2020/6/4
+<p>2020/6/4a
 <p>• 网址不定期更新，连不上时，请不同时间再试试。
 <p>• 建议用谷歌或火狐官方浏览器访问。
 <p>◎  • 视 频： 
-<a href="http://hiq.csso.cam/" target="_blank">网址一</a> 　 
-<a href="http://hty.csso.cam/" target="_blank">网址二</a> 　 
-<a href="http://hqj.csso.cam/b.html" target="_blank">网址三</a>
+<a href="http://hir.csso.cam/" target="_blank">网址一</a> 　 
+<a href="http://htz.csso.cam/" target="_blank">网址二</a> 　 
+<a href="http://hqk.csso.cam/b.html" target="_blank">网址三</a>
 <a href="https://yadi.sk/d/d0sUeAOpal3njw" target="_blank">　• 云下载 </a></p>
 <p>◆ 分 享 网 址 （https://h.zhih.ml/ 请 收 藏） </p>
 
 <p>◎•  小 站：  
-<a href="http://hiq.csso.cam/f.html" target="_blank">网址一</a> 　 
-<a href="http://hty.csso.cam/h.html" target="_blank">网址二</a> 　 
-<a href="http://hqj.csso.cam/k/" target="_blank">网址三</a></p><p>
+<a href="http://hir.csso.cam/f.html" target="_blank">网址一</a> 　 
+<a href="http://htz.csso.cam/h.html" target="_blank">网址二</a> 　 
+<a href="http://hqk.csso.cam/k/" target="_blank">网址三</a></p><p>
 
 <p>◎  • 翻 墙 软 件 ：  
-<a href="http://hiq.csso.cam/ff/" target="_blank">网址一</a> 　 
-<a href="http://hty.csso.cam/s/read/a1_nd.html" target="_blank">网址二</a> 　 
-<a href="http://hqj.csso.cam/ff/index.html" target="_blank">网址三</a></p>
+<a href="http://hir.csso.cam/ff/" target="_blank">网址一</a> 　 
+<a href="http://htz.csso.cam/s/read/a1_nd.html" target="_blank">网址二</a> 　 
+<a href="http://hqk.csso.cam/ff/index.html" target="_blank">网址三</a></p>
 <p>◎  • 每 日 新 闻：  
-<a href="http://hiq.csso.cam/day/" target="_blank">网址一</a> 　 
-<a href="http://hty.csso.cam/day/" target="_blank">网址二</a> 　 
-<a href="http://hqj.csso.cam/day/index.html" target="_blank">网址三</a></p>
+<a href="http://hir.csso.cam/day/" target="_blank">网址一</a> 　 
+<a href="http://htz.csso.cam/day/" target="_blank">网址二</a> 　 
+<a href="http://hqk.csso.cam/day/index.html" target="_blank">网址三</a></p>
 <p>◎   • 短 波 分 享：  
-<a href="http://hiq.csso.cam/h/" target="_blank">网址一</a> 　 
-<a href="http://hqj.csso.cam/h/" target="_blank">网址二</a> 　 
-<a href="http://hty.csso.cam/h/index.html" target="_blank">网址三</a></p>
+<a href="http://hir.csso.cam/h/" target="_blank">网址一</a> 　 
+<a href="http://hqk.csso.cam/h/" target="_blank">网址二</a> 　 
+<a href="http://htz.csso.cam/h/index.html" target="_blank">网址三</a></p>
 <p>◎   • 九 评.三 退：  
-<a href="http://hiq.csso.cam/t/" target="_blank">网址一</a> 　 
-<a href="http://hqj.csso.cam/v2/index.html" target="_blank">网址二</a> 　 
-<a href="http://hty.csso.cam/tt/index.html" target="_blank">网址三</a> 　</p>
+<a href="http://hir.csso.cam/t/" target="_blank">网址一</a> 　 
+<a href="http://hqk.csso.cam/v2/index.html" target="_blank">网址二</a> 　 
+<a href="http://htz.csso.cam/tt/index.html" target="_blank">网址三</a> 　</p>
 <p>  • （E2_视频/语音）《九 评》视频/语音: 
-<a href="http://hiq.csso.cam/7738.html" target="_blank">网址一</a> 　 
-<a href="http://hqj.csso.cam/7614.html" target="_blank">网址二</a> 　 
-<a href="http://hty.csso.cam/7633.html" target="_blank">网址三</a></p>
+<a href="http://hir.csso.cam/7738.html" target="_blank">网址一</a> 　 
+<a href="http://hqk.csso.cam/7614.html" target="_blank">网址二</a> 　 
+<a href="http://htz.csso.cam/7633.html" target="_blank">网址三</a></p>
 <p>◎   • 三 退 管 道...退 党 网：  
-<a href="http://hiq.csso.cam/go/td1.html" target="_blank">网址一</a> 　 
-<a href="http://hqj.csso.cam/go/td2.html" target="_blank">网址二</a> 　 
-<a href="http://hty.csso.cam/go/td3.html" target="_blank">网址三</a></p>
+<a href="http://hir.csso.cam/go/td1.html" target="_blank">网址一</a> 　 
+<a href="http://hqk.csso.cam/go/td2.html" target="_blank">网址二</a> 　 
+<a href="http://htz.csso.cam/go/td3.html" target="_blank">网址三</a></p>
 <p>  • （F1） 三 退 管 道（一）： 
-<a href="http://hiq.csso.cam/dd/" target="_blank">网址一</a> 　 
-<a href="http://hqj.csso.cam/s/read/a1_tdx.html" target="_blank">网址二</a> 　 
-<a href="http://hty.csso.cam/dd/" target="_blank">网址三</a></p>
+<a href="http://hir.csso.cam/dd/" target="_blank">网址一</a> 　 
+<a href="http://hqk.csso.cam/s/read/a1_tdx.html" target="_blank">网址二</a> 　 
+<a href="http://htz.csso.cam/dd/" target="_blank">网址三</a></p>
 <p>  • （F2）三 退 管 道（二）： 
-<a href="http://hqj.csso.cam/d/" target="_blank">网址一</a> 　 
-<a href="http://hiq.csso.cam/d/index.html" target="_blank">网址二</a> 　 
-<a href="http://hty.csso.cam/d/" target="_blank">网址三</a></p>
+<a href="http://hqk.csso.cam/d/" target="_blank">网址一</a> 　 
+<a href="http://hir.csso.cam/d/index.html" target="_blank">网址二</a> 　 
+<a href="http://htz.csso.cam/d/" target="_blank">网址三</a></p>
 <p>◎   • PDF电子书：  
-<a href="http://hiq.csso.cam/p/" target="_blank">网址一</a> 　 
-<a href="http://hty.csso.cam/p/index.html" target="_blank">网址二</a> 　 
-<a href="http://hqj.csso.cam/p/" target="_blank">网址三</a></p>
+<a href="http://hir.csso.cam/p/" target="_blank">网址一</a> 　 
+<a href="http://htz.csso.cam/p/index.html" target="_blank">网址二</a> 　 
+<a href="http://hqk.csso.cam/p/" target="_blank">网址三</a></p>
