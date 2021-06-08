@@ -1,4 +1,4 @@
-<p>2020/6/7a
+<p>2020/6/8
 <p>• 网址不定期更新，连不上时，请不同时间再试试。
 <p>• 建议用谷歌或火狐官方浏览器访问。
 <p>◎  • 视 频： 
@@ -6,7 +6,7 @@
 <a href="http://hub.csso.cam/" target="_blank">网址二</a> 　 
 <a href="http://hqn.csso.cam/b.html" target="_blank">网址三</a>
 
-<p>◆ 分 享 网 址  https://j.zhih.ml/   （请 收 藏） </p>
+<p>◆ 分 享 网 址  https://k.zhih.ml/   （请 收 藏） </p>
 
 <p>◎•  小 站：  
 <a href="http://hiw.csso.cam/f.html" target="_blank">网址一</a> 　 
