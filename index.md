@@ -5,8 +5,7 @@
 <a href="http://hje.csso.cam/" target="_blank">网址一</a> 　 
 <a href="http://huh.csso.cam/" target="_blank">网址二</a> 　 
 <a href="http://hqt.csso.cam/b.html" target="_blank">网址三</a>
-
-<p>◆ 分 享 网 址  https://b.totu.ml/   （请 收 藏） </p>
+<p>◆ 分 享 网 址  https://c.totu.ml/  （请 收 藏） </p>
 
 <p>◎•  小 站：  
 <a href="http://hje.csso.cam/f.html" target="_blank">网址一</a> 　 
