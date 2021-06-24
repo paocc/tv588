@@ -1,50 +1,50 @@
-<p>2020/6/23
+<p>2020/6/24
 <p>• 网址不定期更新，连不上时，请不同时间再试试。
 <p>• 建议用谷歌或火狐官方浏览器访问。
 <p>◎  • 视 频： 
-<a href="http://ecr.csso.cam/" target="_blank">网址一</a> 　 
-<a href="http://ebr.csso.cam/" target="_blank">网址二</a> 　 
-<a href="http://ear.csso.cam/b.html" target="_blank">网址三</a>
-<p>◆ 分 享 网 址  h.totu.ml  （请 收 藏） </p>
+<a href="http://ecs.csso.cam/" target="_blank">网址一</a> 　 
+<a href="http://ebs.csso.cam/" target="_blank">网址二</a> 　 
+<a href="http://eas.csso.cam/b.html" target="_blank">网址三</a>
+<p>◆ 分 享 网 址  i.totu.ml  （请 收 藏） </p>
 
 <p>◎•  小 站：  
-<a href="http://ecr.csso.cam/f.html" target="_blank">网址一</a> 　 
-<a href="http://ebr.csso.cam/h.html" target="_blank">网址二</a> 　 
-<a href="http://ear.csso.cam/k/" target="_blank">网址三</a></p><p>
+<a href="http://ecs.csso.cam/f.html" target="_blank">网址一</a> 　 
+<a href="http://ebs.csso.cam/h.html" target="_blank">网址二</a> 　 
+<a href="http://eas.csso.cam/k/" target="_blank">网址三</a></p><p>
 
 <p>◎  • 翻 墙 软 件 ：  
-<a href="http://ecr.csso.cam/ff/" target="_blank">网址一</a> 　 
-<a href="http://ebr.csso.cam/s/read/a1_nd.html" target="_blank">网址二</a> 　 
-<a href="http://ear.csso.cam/ff/index.html" target="_blank">网址三</a></p>
+<a href="http://ecs.csso.cam/ff/" target="_blank">网址一</a> 　 
+<a href="http://ebs.csso.cam/s/read/a1_nd.html" target="_blank">网址二</a> 　 
+<a href="http://eas.csso.cam/ff/index.html" target="_blank">网址三</a></p>
 <p>◎  • 每 日 新 闻：  
-<a href="http://ecr.csso.cam/day/" target="_blank">网址一</a> 　 
-<a href="http://ebr.csso.cam/day/" target="_blank">网址二</a> 　 
-<a href="http://ear.csso.cam/day/index.html" target="_blank">网址三</a></p>
+<a href="http://ecs.csso.cam/day/" target="_blank">网址一</a> 　 
+<a href="http://ebs.csso.cam/day/" target="_blank">网址二</a> 　 
+<a href="http://eas.csso.cam/day/index.html" target="_blank">网址三</a></p>
 <p>◎   • 短 波 分 享：  
-<a href="http://ecr.csso.cam/h/" target="_blank">网址一</a> 　 
-<a href="http://ear.csso.cam/h/" target="_blank">网址二</a> 　 
-<a href="http://ebr.csso.cam/h/index.html" target="_blank">网址三</a></p>
+<a href="http://ecs.csso.cam/h/" target="_blank">网址一</a> 　 
+<a href="http://eas.csso.cam/h/" target="_blank">网址二</a> 　 
+<a href="http://ebs.csso.cam/h/index.html" target="_blank">网址三</a></p>
 <p>◎   • 九 评.三 退：  
-<a href="http://ecr.csso.cam/t/" target="_blank">网址一</a> 　 
-<a href="http://ear.csso.cam/v2/index.html" target="_blank">网址二</a> 　 
-<a href="http://ebr.csso.cam/tt/index.html" target="_blank">网址三</a> 　</p>
+<a href="http://ecs.csso.cam/t/" target="_blank">网址一</a> 　 
+<a href="http://eas.csso.cam/v2/index.html" target="_blank">网址二</a> 　 
+<a href="http://ebs.csso.cam/tt/index.html" target="_blank">网址三</a> 　</p>
 <p>  • （E2_视频/语音）《九 评》视频/语音: 
-<a href="http://ecr.csso.cam/7738.html" target="_blank">网址一</a> 　 
-<a href="http://ear.csso.cam/7614.html" target="_blank">网址二</a> 　 
-<a href="http://ebr.csso.cam/7633.html" target="_blank">网址三</a></p>
+<a href="http://ecs.csso.cam/7738.html" target="_blank">网址一</a> 　 
+<a href="http://eas.csso.cam/7614.html" target="_blank">网址二</a> 　 
+<a href="http://ebs.csso.cam/7633.html" target="_blank">网址三</a></p>
 <p>◎   • 三 退 管 道...退 党 网：  
-<a href="http://ecr.csso.cam/go/td1.html" target="_blank">网址一</a> 　 
-<a href="http://ear.csso.cam/go/td2.html" target="_blank">网址二</a> 　 
-<a href="http://ebr.csso.cam/go/td3.html" target="_blank">网址三</a></p>
+<a href="http://ecs.csso.cam/go/td1.html" target="_blank">网址一</a> 　 
+<a href="http://eas.csso.cam/go/td2.html" target="_blank">网址二</a> 　 
+<a href="http://ebs.csso.cam/go/td3.html" target="_blank">网址三</a></p>
 <p>  • （F1） 三 退 管 道（一）： 
-<a href="http://ecr.csso.cam/dd/" target="_blank">网址一</a> 　 
-<a href="http://ear.csso.cam/s/read/a1_tdx.html" target="_blank">网址二</a> 　 
-<a href="http://ebr.csso.cam/dd/" target="_blank">网址三</a></p>
+<a href="http://ecs.csso.cam/dd/" target="_blank">网址一</a> 　 
+<a href="http://eas.csso.cam/s/read/a1_tdx.html" target="_blank">网址二</a> 　 
+<a href="http://ebs.csso.cam/dd/" target="_blank">网址三</a></p>
 <p>  • （F2）三 退 管 道（二）： 
-<a href="http://ear.csso.cam/d/" target="_blank">网址一</a> 　 
-<a href="http://ecr.csso.cam/d/index.html" target="_blank">网址二</a> 　 
-<a href="http://ebr.csso.cam/d/" target="_blank">网址三</a></p>
+<a href="http://eas.csso.cam/d/" target="_blank">网址一</a> 　 
+<a href="http://ecs.csso.cam/d/index.html" target="_blank">网址二</a> 　 
+<a href="http://ebs.csso.cam/d/" target="_blank">网址三</a></p>
 <p>◎   • PDF电子书：  
-<a href="http://ecr.csso.cam/p/" target="_blank">网址一</a> 　 
-<a href="http://ebr.csso.cam/p/index.html" target="_blank">网址二</a> 　 
-<a href="http://ear.csso.cam/p/" target="_blank">网址三</a></p>
+<a href="http://ecs.csso.cam/p/" target="_blank">网址一</a> 　 
+<a href="http://ebs.csso.cam/p/index.html" target="_blank">网址二</a> 　 
+<a href="http://eas.csso.cam/p/" target="_blank">网址三</a></p>
